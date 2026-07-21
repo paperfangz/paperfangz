@@ -9,6 +9,3 @@ ${\color{#d4a65e} \space 𝔰𝔞𝔣𝔢𝔱𝔶.}$
 
 <img width="550" height="550" alt="krbkkidstintedcroppedandtexturednobg" src="https://github.com/user-attachments/assets/392b1828-4ea2-4f85-b6c3-5b25dbe87894" />
 
-<img width="300" height="300" alt="kirkbakfromcathy" src="https://github.com/user-attachments/assets/b770be3f-babf-43c7-b18f-15579dc65a69" />
-
-${\color{#e0b577} from \space}$ ${\color{#e0b577} }$ [Cathyy](https://github.com/obsessedgojo)
