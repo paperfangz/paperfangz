@@ -13,3 +13,7 @@ ${\space}$
 
 <img width="500" height="500" alt="krbkkidstintedcroppedandtexturednobg" src="https://github.com/user-attachments/assets/392b1828-4ea2-4f85-b6c3-5b25dbe87894" /> 
 
+${\space}$
+
+${\color{#e0b577} Sign \space}$ ${\color{#e0b577}}$ [atabukk۶ৎ](https://kiribaku.atabook.org/)
+
