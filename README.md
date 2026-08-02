@@ -15,5 +15,5 @@ ${\space}$
 
 ${\space}$
 
-${\color{#e0b577} Sign \space}$ ${\color{#e0b577}}$ [atabukk۶ৎ](https://kiribaku.atabook.org/)
+${\color{#e0b577} Sign \space}$ ${\color{#cf1b53}}$ [atabukk۶ৎ](https://kiribaku.atabook.org/)
 
