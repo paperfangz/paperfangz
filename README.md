@@ -1,1 +1,1 @@
-<img width="720" height="539" alt="download (9)" src="https://github.com/user-attachments/assets/91ab3cda-6e54-4f79-b6f9-f01c3082188e" />
+<img width="600" height="336" alt="♡ ⠀๋⠀᳝ ୨୧ dolliestgirl⠀๋⠀᳝ ✧" src="https://github.com/user-attachments/assets/4c2c60ed-bce9-4c34-a09f-8fb4e5d58735" />
